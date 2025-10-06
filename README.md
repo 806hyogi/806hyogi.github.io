@@ -1,1 +1,0 @@
-# 806hyogi.github.io
